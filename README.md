@@ -11,8 +11,6 @@ _| <a href="https://web.telegram.org/k/#@usdsmellyy">TELEGRAM</a>_
 <h2>SCAMPAGE PRIVATE PAID - GCLOUD 👾 </h2>
 <img src="https://i.imgur.com/RvBPUMO.png" style="max-width:100%">
 
-## Installation :
-
 ## **🦄 NOTE** :
 
 YOU WANT ASK ABOUT ALL MY SPAMTOOLS OR MY CHECKER | ORDER TO ME
